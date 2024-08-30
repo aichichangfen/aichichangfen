@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @aichichangfen
+- 👀 I’m interested in game
+- 🌱 I’m currently learning SEO
+- 📫 treach me:w2274194310@outlook.com
+- 😄 Pronouns:我是帅哥
+- ⚡ Fun fact:没啥
